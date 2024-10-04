@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Joellin
+- 👀 I’m interested in data analysis and economics
+- 🌱 I’m currently learning python and R
+- 💞️ I’m looking to collaborate on any project that can help me build my python and R coding skills
+- 📫 You can reach me on Whatsapp on 0246214521 
+- 😄 Pronouns she 
+- ⚡ Fun fact i am open to learn new things
